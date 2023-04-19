@@ -1,7 +1,9 @@
 ### Hello, I'm Vanessa Buitrago 👋
 
 I have experience in foreign trade with mastery in procedures, regulations and procedures necessary for imports and exports to Latin American countries and the U.S Management of the logistics chain.
-I have the intention to get more experience and develop more skills in my professional profile, I like to learn and integrate it at the same time in my job, the knowlogies has been are accounting terms, administrative areas, negotiation terms excellent interpersonal relationships, quality of communication for teamwork, good customer orientation and adaptability, as well as a good treatment of people. 
+
+I have the intention to get more experience and develop more skills in my professional profile, I like to learn and integrate it at the same time in my job, the knowlogies has been are accounting terms, administrative areas, negotiation terms excellent interpersonal relationships, quality of communication for teamwork, good customer orientation and adaptability, as well as a good treatment of people.
+
 In my free time, I’m learning idioms as Italian, I enjoy healthy living and exercise, I love to travel and know new places,  I’ve appreciated the opportunities for my grow up and all of this had increase my professional skills at my age, has given me in each experience the ability of give the best in my job.
 
 - 😄 Pronouns:  She/Her 
@@ -22,8 +24,8 @@ Handling their customers and suppliers from Brazil, Germany and China.
 
 - 👯 I’m looking to collaborate on work in a top international job, for still work remoting in the meantime I learning new idioms and knowing the awesome world 
 
-- 💬 Ask me about my languages, I can help someone who wants lo learn Spanish and I can learn your lenguaje as well 
-- 
+- 💬 Ask me about my languages and I could help someone who wants lo learn Spanish and I can learn your lenguaje as well 
+
 - 📫 How to reach me: Email vanessabuitrago0502314@gmail.com -Twitter [@Buitragooysel](https://twitter.com/buitragooylsel) -Intagram [@Buitragooyles](https://www.instagram.com/buitragooyles/?next=/) 
 
 - ⚡ One line that describes me best?
