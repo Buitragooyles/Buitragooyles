@@ -1,6 +1,8 @@
 ### Hello All!
 
-I'm Vanessa Buitrago 👋.  I have strong experience in foreign trade with mastery in procedures, regulations and procedures necessary for imports and exports to Latin American countries and the U.S Management of the logistics chain.
+I'm Vanessa Buitrago 👋. I from Colombia, currently living in Syracuse, Italy.
+
+I have strong experience in foreign trade with mastery in procedures, regulations and procedures necessary for imports and exports to Latin American countries and the U.S Management of the logistics chain.
 
 My activities have been much beyond my stream of education, I like to learn and integrate it at the same time in my job, the knowlogies has been are accounting terms, administrative areas, negotiation terms excellent interpersonal relationships, quality of communication for teamwork, good and continue customer orientation and adaptability to them, as well as a good treatment of people.
 
