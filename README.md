@@ -1,6 +1,6 @@
 ### Hello All!
 
-I'm Vanessa Buitrago 👋. I from Colombia, currently living in Syracuse, Italy.
+I'm Vanessa Buitrago 👋. I from Colombia
 
 I have strong experience in foreign trade with mastery in procedures, regulations and procedures necessary for imports and exports to Latin American countries and the U.S Management of the logistics chain.
 
