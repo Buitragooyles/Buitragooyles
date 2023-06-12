@@ -28,7 +28,7 @@ An ambitious girl who loves soak the croassant in the coffe and I can dreaming s
 - 💬 Ask me about all you want (whitin reason) 
 
 - 📫 How to reach me: 
-- Email vanessabuitrago0502314@gmail.com 
+- Email Leslyvanessapb@outlook.com 
 - Twitter [@Buitragooysel](https://twitter.com/buitragooylsel)
 - Intagram [@Buitragooyles](https://www.instagram.com/buitragooyles/?next=/) 
 
