@@ -30,6 +30,5 @@ An ambitious girl who loves soak the croassant in the coffe and I can dreaming s
 - 📫 How to reach me: 
 - Email Leslyvanessapb@outlook.com 
 - Twitter [@Buitragooysel](https://twitter.com/buitragooylsel)
-- Intagram [@Buitragooyles](https://www.instagram.com/buitragooyles/?next=/) 
 
 
